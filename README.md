@@ -1,3 +1,3 @@
 please read me
 
-email : hsshin@hansung.ac.kr
+email : hsshin97@hansung.ac.kr
